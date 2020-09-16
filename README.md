@@ -6,4 +6,7 @@ I will be showing what we have as far as mobile targets are concerned, as well a
 
 While both of us have grown up with an athletic background, I personally have taken some time away from any kind of intense, long-term, fitness activity. 
 
-These Next five + months will be challenging. I will continue to post as often as I can  just to log and help remember the journey - not only for myself but for others interested in the process it takes to potentially succeeed in completeing this crazy adventure course. 
+These next five + months will be challenging. I will continue to post as often as I can  just to log and help remember the journey - not only for myself but for others interested in the process it takes to potentially succeeed in completeing this crazy adventure course.
+
+I have always had some kind of workout plan - whether I've followed it or not. There are tons of workouts here that I've come up with, and referenced other trainers. 
+https://docs.google.com/spreadsheets/d/1U2fQYK26SlqeOokbdwcfobGUtlgcIDcOuB_DTu6qg9A/edit#gid=1169494620
