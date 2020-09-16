@@ -9,4 +9,5 @@ While both of us have grown up with an athletic background, I personally have ta
 These next five + months will be challenging. I will continue to post as often as I can  just to log and help remember the journey - not only for myself but for others interested in the process it takes to potentially succeeed in completeing this crazy adventure course.
 
 I have always had some kind of workout plan - whether I've followed it or not. There are tons of workouts here that I've come up with, and referenced other trainers. 
-https://docs.google.com/spreadsheets/d/1U2fQYK26SlqeOokbdwcfobGUtlgcIDcOuB_DTu6qg9A/edit#gid=1169494620
+
+https://docs.google.com/spreadsheets/d/1U2fQYK26SlqeOokbdwcfobGUtlgcIDcOuB_DTu6qg9A/edit?usp=sharing
